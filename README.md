@@ -1,2 +1,3 @@
-# argh
-im gonna steal ur money HAHAHAHHAHAHAHAHAHAHAHAHAHAHAAHAHAHAHAHA HRHHEHEHEH
+# PiratesInvasionStage-6
+
+adding animations
